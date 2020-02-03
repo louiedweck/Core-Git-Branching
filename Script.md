@@ -23,7 +23,8 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 George met the Unicorn King who granted him magic powers. George used the magic powers and soon lost control of his power. He destroyed the entire world around him, before the Unicorn King stopped him. So the unicorn king started over, with two kings to rule the world, to balance out the world. Their names:
-Dan and Brauss
+Dan and Brauss.
+the friendly koala rules by their side.
 The end.
 
 ## Cast
